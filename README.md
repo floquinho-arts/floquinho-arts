@@ -8,3 +8,5 @@ Meu nome é Samantha Marques
 ## Você pode entrar em contato comigo 📫 ##
 
 00001138488860sp@al.educacao.sp.gov.br
+
+![](https://github.com/user-attachments/assets/b363bd92-b781-4093-8b61-e91f295f61b5)
